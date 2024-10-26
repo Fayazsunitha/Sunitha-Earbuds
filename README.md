@@ -1,1 +1,1 @@
-# FyazSunitha-Earbuds
+# FayazSunitha-Earbuds
